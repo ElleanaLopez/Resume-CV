@@ -1,5 +1,15 @@
 # Resume-CV
 
-Hello! My name is Elleana Lopez, but most people just call me Ellie. This is my general introduction to my Resume/CV, which will be be provided in links below. My primary goal is to study literature, and to answer fundamental questions about the nature of literature and why that is important. During my time at Lindenwood, I also decided to study Philosophy and Religion, which has helped me develop critical thinking and strong arguments. 
-These two fields of study have given me a unique perspective that bridges the humanities and critical thinking. Studying English literature has cultivated analytical and communication skills, where my work in Philosophy and Religion has developed my understanding of complex social ideas and ethical consideration. This prepares me well for engaging with students and apply the same critical thinking skills across various subjects. 
-While my academic background forms the foundation of my qualifications, my work experience has taught me a different but complimentary set of skills that can be applied generally. As a server for a catering company, I learned how to work under pressure and manage time efficiently, as well as communicating with a variety of people. My role as a server and cook at a chocolate shop taught me to apply creativity and attention to detail.
+Welcome to my Resume
+
+My name is Elleana Lopez, but everyone calls me Ellie. As a current undergraduate student at Lindenwood University, I am pursuing a double major in English Literature and Philosophy/Religion with an expected graduation in May 2025. I am excited about the opportunity to contribute to and learn from a dynamic adacemic environment, and I would love to work in a classroom with other students.
+
+My interdisciplinary background has equipped me with a unique set of skills that I believe would be valuable in a graduate assistant role. Through my studies in English Literature, I have honed my research and academic writing abilities, developing a keen eye for detail and a capacity for critical analysis. My work in Philosophy/Religion has further refined my analytical thinking and argumentation skills, allowing me to approach complex issues from multiple perspectives.
+
+While my academic experiences form the foundation of my qualifications, my work history has also contributed significantly to my skill set. As a server for a catering company, I developed strong communication and interpersonal skills, learning to work effectively under pressure and as part of a team. My role as a server and cook at a chocolate shop further enhanced my ability to multitask, pay attention to detail, and creatively solve problems – all skills that I believe would translate well to the demands of a graduate assistant position.
+
+
+1. Education
+2. Work Experience
+3. Key Skills
+4. 
