@@ -8,6 +8,7 @@ My interdisciplinary background has equipped me with a unique set of skills that
 
 While my academic experiences form the foundation of my qualifications, my work history has also contributed significantly to my skill set. As a server for a catering company, I developed strong communication and interpersonal skills, learning to work effectively under pressure and as part of a team. My role as a server and cook at a chocolate shop further enhanced my ability to multitask, pay attention to detail, and creatively solve problems – all skills that I believe would translate well to the demands of a graduate assistant position.
 
-Here is the link to my [resume.]([Transcript.pdf](https://github.com/user-attachments/files/16987640/Transcript.pdf)
+Here is my [resume](https://github.com/user-attachments/files/16987648/Elleana.Lopez.Resume.pdf)
+
 
 Thank you!
